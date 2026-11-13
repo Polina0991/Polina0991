@@ -12,7 +12,7 @@ Not looking for a new job right now? Totally fine!
 Feel free to connect anyway – the best opportunities often come when you least expect them.
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/mag-polina-dimitrova)
-- ✉️ [DEINE E-MAIL] – just drop me a quick "Hi"
+- ✉️ pd@truepotentialsearch.com – just drop me a quick "Hi"
 
 ### ✍️ Follow along
 I post a lot on LinkedIn about tech recruiting, careers and the job market in DACH.
